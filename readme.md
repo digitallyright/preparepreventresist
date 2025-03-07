@@ -1,0 +1,1 @@
+Static website for Prepare Prevent Resist
